@@ -28,7 +28,7 @@ To start, you will need to
 
 Then, you'll be invited to the 'De Jonge Onderzoekers' server.
 
-## How does a lesson take place (for students, thus Enlish)?
+## How does a lesson take place?
 
 Lessons take place on Wednesdays from 18:15 to 20:00.
 
