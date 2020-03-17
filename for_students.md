@@ -35,7 +35,7 @@ Lessons take place on Wednesdays from 18:15 to 20:00.
 When you arrive at 'De Grote Tafel' ('The Big Table'), say hello
 to the people there! There, you'll be taken to smaller tables.
 
-See this YouTube video: [TODO]
+See this YouTube video for an introduction: [https://youtu.be/zyn5VyNjz5I](https://youtu.be/zyn5VyNjz5I)
 
 We follow this timetable:
 
