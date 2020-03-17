@@ -1,6 +1,6 @@
 # dutch_by_kids
 
-![DJOG logo](plaatjes/djog.png)
+![DJOG logo](pics/djog.png)
 
  * Of course, we alternate English and Dutch paragraphs :+1:
  * Natuurlijk wissselen we Engels en Nederlands paragrafen hier af :sunglasses:
