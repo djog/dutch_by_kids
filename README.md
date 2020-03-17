@@ -125,4 +125,32 @@ Sure, that's fine :+1:
 
 ### Wat moet ik doen?
 
-De volwassenen hebben een idee wat ze willen 
+De volwassenen hebben een idee wat ze willen leren.
+Als jullie allebei een microfoon hebben, kun je
+oefenen hoe je Nederlands praat. 
+Sommigen willen misschien hun geschreven Nederlands oefenen, dat kan
+prima in een tekstkanaal :+1:
+
+Maar vergeet niet: jij mag lesgeven zoals jij wilt! Moppen tappen, zingen,
+wat jij wilt :+1:
+
+### Ik kom er niet uit met mijn volwassene
+
+Stuur een priveberichtje ('PM') naar `richelbilderbeek`. Hij
+zal jullie dan weer uitnodigen aan 'De Grote Tafel'.
+Dan vinden we wel weer iets :+1:
+
+### Ik kom iets later, is dat goed?
+
+Liever niet: als vrijwilliger moet Richel wel op je kunnen rekenen!
+
+### Ik moet ineens weg, is dat goed?
+
+Soms moet je ineens weg, dat kan! Ga met je leerling naar De Grote Tafel
+en laat hem/haar daar achter.
+
+### Ik moet eerder weg, is dat goed?
+
+Als het moet, dan moet het. Als er meer volwassenen dan kids zijn, kun je
+prima gaan. Richel hoopt dan wel stiekem dat hij jou nog wel kan bereiken :+1:
+
