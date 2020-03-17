@@ -30,6 +30,8 @@ Then, you'll be invited to the 'De Jonge Onderzoekers' server.
 
 ## How does a lesson take place (for students, thus Enlish)?
 
+Lessons take place on Wednesdays from 18:15 to 20:00.
+
 When you arrive at 'De Grote Tafel' ('The Big Table'), say hello
 to the people there! There, you'll be taken to smaller tables.
 

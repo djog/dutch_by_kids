@@ -27,6 +27,8 @@ Daarna wordt je uitgenodigd voor de 'De Jonge Onderzoekers' server :+1:
 
 ## Hoe gaat een les?
 
+Lessen zijn op de woensdag, van 18:15-20:00.
+
 Als je binnenkomt, zeg dan eerst hoi bij 'De Grote Tafel'.
 Dan koppelen we je aan iemand die Engels wil leren en kun je
 hem/haar naar een andere tafel nemen.
