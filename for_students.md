@@ -74,3 +74,11 @@ Sure, that's fine :+1:
 
 Sure, that's fine :+1:
 
+### I need help!
+
+Sure:
+
+ * Send a private message on Discord
+ * If you cannot get on Discord, send me an email: `richel@richelbilderbeek.nl`
+
+
