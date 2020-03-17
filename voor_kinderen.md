@@ -33,7 +33,7 @@ Als je binnenkomt, zeg dan eerst hoi bij 'De Grote Tafel'.
 Dan koppelen we je aan iemand die Engels wil leren en kun je
 hem/haar naar een andere tafel nemen.
 
-Zie deze YouTube video: [TODO]
+Zie deze video voor een rondleiding: [YouTube](https://youtu.be/CoVRwbbaz1U) [download (.OGG)](http://richelbilderbeek.nl/dutch_by_kids_voor_kinderen.ogv)
 
 Dit is het lesschema:
 
